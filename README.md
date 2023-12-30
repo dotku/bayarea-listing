@@ -1,4 +1,4 @@
-# bayrea listing
+# bayarea listing
 
 ## Home Moving
 
