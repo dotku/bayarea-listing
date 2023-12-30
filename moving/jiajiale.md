@@ -29,10 +29,11 @@ Credit card charge additional 4% of full  bill
 
 Estimate: around 4-5 hrs  
 
-It is just an estimate for normally case, but working time depends stuff and stairs or elevator we will charge actual worked time on the moving date.
+> It is just an estimate for normally case, but working time depends stuff and stairs or elevator
+> we will charge actual worked time on the moving date.
 
 All we need is your name, addresses and your phone to schedule your move appointment very easy, After I received I will send confirmation to you soon! 
-Then we will see you soon ! 
+Then we will see you soon! 
 
 Please let us know if you have large items like piano or safe or pool table or spa, we charge additional for those large items.
 
