@@ -1,6 +1,6 @@
 # Happy House Movers 家家乐
 
-Hi there，
+Hi there,
 
 Thank you for reaching Happy House Movers,
 We appreciate the opportunity to assist you and are happy to provide you with more information about our services.
