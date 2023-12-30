@@ -16,7 +16,7 @@ Minimum 2 hour charge,if more than 15 minutes we charge half hour rate,  Mover t
 
 Truck and Gas fee: $55 
 
-Availability Date and time: 8.30am 
+Availability Date and time: 8:30am 
 
 Zelle /venmo/ check /paypal works also
 Credit card charge additional 4% of full  bill 
