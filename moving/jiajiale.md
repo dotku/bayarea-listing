@@ -41,6 +41,7 @@ We are Licensed and Insured cover 60cents per pound per item !
 ## Contact
 
 For more questions you may have. Please call us to discuss more at: 408-880-7777
-Name: Tony 
-Web: www.happyhousemovers.com
-email: happyhousemovers@gmail.com
+
+Name: Tony   
+Web: www.happyhousemovers.com  
+email: happyhousemovers@gmail.com  
